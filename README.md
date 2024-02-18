@@ -99,7 +99,7 @@ Note:
 I hope you like this dictionary. Feel free to reach out if you have questions or if you want to contribute in any way:
 
 * **[Twitter](http://www.twitter.com/moghaddamhreza)**
-* **E-mail: [dolanskurd@mail.com](mailto:me@rezaa.us)**
+* **E-mail: [me@rezaa.us](mailto:me@rezaa.us)**
 
 
 
